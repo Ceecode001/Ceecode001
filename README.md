@@ -2,7 +2,7 @@
 - 👀 I’m interested in sharing ideas and solving problems ...
 - 🌱 I’m currently learning Software Engineering 
 - 💞️ I’m looking to collaborate on team work
-- 📫 How to reach me 07067030934
+- 📫 How to reach me @pharm.Ceejay twitter @ifeme Chijioke on Facebook @jofemzy on instagram 
 
 <!---
 Ceecode001/Ceecode001 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
